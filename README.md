@@ -1,4 +1,3 @@
-![Фото](https://monosnap.com/direct/zscECM04bHiXLuc8KBqFLCyZfbQhLw)
 
 ## Мезин Юрий
 
